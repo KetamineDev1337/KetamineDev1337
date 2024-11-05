@@ -2,7 +2,7 @@
 - 👀 I’m interested in Kernel Developing and C++
 - 🌱 I’m currently learning Kernel C++
 - 💞️ Join My Discord Server And Stay Updated / ud https://discord.gg/Gz2azzgW
-- 📫 How to reach me On Discord saltyyytm
+- 📫 How to reach me On Discord Ketaminedev1337
 
 - ⚡ Fun fact: Im Rasist
 
